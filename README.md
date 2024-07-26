@@ -1,1 +1,0 @@
-# Converting-Heat-energy-directly-into-Electrical-energy-using-Seebeck-E-ffect
